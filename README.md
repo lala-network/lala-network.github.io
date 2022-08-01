@@ -1,3 +1,3 @@
-# lala-network.github.io
+# Launching on Android and iOS in Q3 2022
 
-Welcome to Lala Networ
+Stay tuned for updates! Contact the.lala.network@gmail.com for more information.
